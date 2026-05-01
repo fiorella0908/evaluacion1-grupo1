@@ -1,4 +1,4 @@
-José León Profe
+José León
 
 
  Manuel Rodrigue
